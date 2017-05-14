@@ -1,1 +1,1 @@
-Задачки ЕГЭ 27 будут тут
+EGE 27 number will here be
